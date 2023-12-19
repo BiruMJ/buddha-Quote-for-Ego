@@ -1,0 +1,1 @@
+# buddha-Quote-for-Ego
